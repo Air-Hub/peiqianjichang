@@ -1,6 +1,8 @@
 # 赔钱VPN 官方网站链接
 
-最新地址：[赔钱VPN.com](https://赔钱.com/#/register?code=LLq8KnlO)
+最新地址1：[赔钱VPN.com](https://dash.pqjc.site/register?code=LLq8KnlO&cover=sfw)
+
+最新地址2：[赔钱机场.com](https://dash.xn--cp3a08l.com/register?code=LLq8KnlO&cover=sfw)
 
 ## 赔钱VPN 服务介绍
 
@@ -16,7 +18,7 @@
 
 **折扣：** 7折优惠
 
-**有效期：** 至2025年12月31日
+**有效期：** 至2026年5月31日
 
 无论是续费还是新购，都可享受此优惠！
 
